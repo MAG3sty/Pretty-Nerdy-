@@ -1,10 +1,10 @@
-# Team Name
+# Pretty Nerdy!
 
 ## Project Summary
 
 ### Team Members
 
-- 
+- Maggie Cohen
 - 
 - 
 - 
