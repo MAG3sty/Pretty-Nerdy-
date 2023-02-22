@@ -6,6 +6,6 @@
 
 - Maggie Cohen
 - Clarissa Allen
-- 
+- Priscilla Johnson
 - 
 
