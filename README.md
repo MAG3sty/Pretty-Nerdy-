@@ -5,7 +5,7 @@
 ### Team Members
 
 - Maggie Cohen
-- 
+- Clarissa Allen
 - 
 - 
 
