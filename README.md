@@ -7,5 +7,5 @@
 - Maggie Cohen
 - Clarissa Allen
 - Priscilla Johnson
-- 
+- Taitana Robinson
 
