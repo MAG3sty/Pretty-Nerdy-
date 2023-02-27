@@ -9,3 +9,4 @@
 - Priscilla Johnson
 - Taitana Robinson
 - Renee Kammeyer
+- Vanessa Morales
